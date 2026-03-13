@@ -1,0 +1,1 @@
+# 2nd-richest-people
